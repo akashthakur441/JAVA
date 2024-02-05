@@ -1,2 +1,2 @@
 # JAVA
-java have that type of power which makes its strongest than other languages 
+java have that type of power which makes its strongest than other languages and that`s why m always try to be strongest one among all......
